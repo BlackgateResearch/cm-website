@@ -1,3 +1,5 @@
+Original:
+
 Principles and Practice of Conscientious Mechanism
 ==================================================
 
